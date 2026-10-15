@@ -10,6 +10,7 @@
 ИНН 911012040956, г. Волгоград.
 Почта: ikuruhixohef89@gmail.com. Телефон: +7 988 027-70-97.
 Telegram-бот: [@WaveScriptSupport_bot](https://t.me/WaveScriptSupport_bot).
+Группа ВКонтакте: [vk.com/wave_script](https://vk.com/wave_script).
 
 ## 2. Что продаётся
 
